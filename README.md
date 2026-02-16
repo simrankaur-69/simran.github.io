@@ -8,6 +8,10 @@ My background includes working as an Equity Research Analyst at Morningstar in M
 
 Now, I am employed at Starbucks in Vancouver as a Barista, and I have enhanced my communication, flexibility and interaction with customers in a highly dynamic setting. This has not only contributed to my knowledge about service excellence, which is a very fundamental skill in retail and commercial banking, but also in commercial banking in general.
 
-To support the startup valuation and revenue prediction, I developed a structured financial projections template that is designed to support the process in Lovely Professional University (India) in 2020 (I received my Bachelor of Business Administration). I am also dedicated to life long learning, both academically and professionally. I am a CFA Level I candidate and I am undertaking the Canadian Securities Course (CSC) to make my qualification in line with the financial industry standards of Canada.
+To support the startup valuation and revenue prediction, I developed a structured financial projections template that is designed to support the process in Lovely Professional University (India) in 2020 (I received my Bachelor of Business Administration). 
+<img width="1440" height="729" alt="Screenshot 2026-02-16 at 7 20 13 PM" src="https://github.com/user-attachments/assets/ecfa22c2-c0a2-4557-8f9a-4e8155f0845c" />
+
+
+I am also dedicated to life long learning, both academically and professionally. I am a CFA Level I candidate and I am undertaking the Canadian Securities Course (CSC) to make my qualification in line with the financial industry standards of Canada.
 
 I am seeking an opportunity to be placed in a banking or financial analyst position in Vancouver where I can be able to apply analytical rigor, strategic acumen and high quality client relationship management to add value to financial decisions and long term value creation.
