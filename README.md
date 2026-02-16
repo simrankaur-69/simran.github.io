@@ -1,4 +1,7 @@
-# Simran
+# Simranpreet Kaur
+
+![PHOTO-2026-02-16-20-27-58](https://github.com/user-attachments/assets/12c627fe-6741-442c-b806-44af9c81356d)
+
 
 ## MBA Student, Finance Student, Would-be Banking Analyst.
 
